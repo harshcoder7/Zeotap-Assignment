@@ -1,2 +1,1 @@
-Thanks! Learned a lot through out the phase of completing the assignment and limited time constraints! 
-
+"Thanks! I learned a lot throughout the process of completing the assignment despite the time constraints!"
